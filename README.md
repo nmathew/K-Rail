@@ -26,6 +26,8 @@ TRAVEL AND DEMAND FORECAST](https://keralarail.com/wp-content/uploads/2021/09/Si
 [K RAIL ഒറ്റപെട്ടെ SILVERLINE പദ്ധതി](https://www.youtube.com/watch?v=PfxTNyEQCCc)
 
 
-Please push changes which contains more scientific/economics/social reasons for this projects, both pros and cons welcome.
 
-Thanks you
+
+**Please push changes which contains more scientific/economics/social reasons for this project, both for and against.**
+
+
