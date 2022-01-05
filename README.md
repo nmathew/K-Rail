@@ -27,6 +27,8 @@ TRAVEL AND DEMAND FORECAST](https://keralarail.com/wp-content/uploads/2021/09/Si
 
 [K Rail | Silver Line Rail Project Kerala | Silverline Project | K-Rail | alexplain](https://www.youtube.com/watch?v=6M22XktpK88)
 
+[കേരളത്തെ തകർക്കാനുള്ള വൃത്തികെട്ട നീക്കം.. I About K rail project in kerala](https://www.youtube.com/watch?v=biuV8G1QsB0)
+
 
 
 
